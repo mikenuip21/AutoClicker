@@ -1,1 +1,1 @@
-[www.auto](https://autoclicker.ca/)
+[www.autoclicker.ca](https://autoclicker.ca/)
